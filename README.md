@@ -1,4 +1,4 @@
-## You Also Can Visit Us On Discord/Telegram
+
 
 
 ## Hwid Spoofer EAC BE Vanguard C++ | BioGuard
